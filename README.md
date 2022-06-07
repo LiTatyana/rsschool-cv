@@ -1,1 +1,1 @@
-https://LiTatyana.github.io/rsschool-cv/cv
+https://LiTatyana.github.io/rsschool-cv/
